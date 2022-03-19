@@ -1,0 +1,9 @@
+- 👋 Hewoo! I am Shen/Shenpai/Isaac/Callie.
+- Infomation: I like trading/selling/buying stuff in games, I am a girl and I'm 18.
+- Best friend: Sei.
+- Boyfriend: Daun.
+- � I’m interested in Making Friends And Playing New Games.
+- � How to reach me: Discord [Dm me for my links and ect]: Eto [666 Former]#3392
+- Good Friends: SpooderCito, Jade/Tomfoolery, parlus [Mr Eto]
+- Country: Tokyo, Japan
+- Anime/Manga Life.
